@@ -8,7 +8,7 @@ Parte 4: https://youtu.be/XRGmwLUJKvs<br>
 Parte 5: https://youtu.be/wLPo_QRvXs0<br>
 Parte 6: https://youtu.be/dadQB0SEEgc
 
-Playlist: https://youtube.com/playlist?list=PLTN1gMq8EHuLGmvcA5Wckm3gcq0gWso10
+Playlist: https://youtube.com/playlist?list=PLTN1gMq8EHuKxZ2w06AfG7vTeJVqj1n0J
 
 **Redes Sociais:** https://linktr.ee/expertostech
 
